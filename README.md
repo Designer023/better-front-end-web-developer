@@ -29,6 +29,7 @@ Resources are listed by Free forever, Paid only access or trial access where the
 
 ### Weppack
 
+- https://www.youtube.com/watch?v=eWmkBNBTbMM&t=3906s
 
 ## Single Tutorials
 
